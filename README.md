@@ -1,4 +1,4 @@
-![Warning](https://github.com/user-attachments/assets/fb9e7eeb-cba9-44dc-932d-f7d3f1cd3364)
+![Warning](https://github.com/user-attachments/assets/b429ee22-9b2a-4851-a007-aad677e62b04)
 
 > Assistive life hack specialist and teacher.
 #
